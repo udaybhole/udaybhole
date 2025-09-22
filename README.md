@@ -1,5 +1,5 @@
 # 💫 About Me:
-3 rd Year AI&DS Undergrad
+4 th Year AI&DS Undergrad
 
 
 ## 🌐 Socials:
